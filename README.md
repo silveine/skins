@@ -1,13 +1,31 @@
 # skins
 
-# [selene](https://www.mediafire.com/file/dy6xxyyyb8k8v7y/selene.osk/file)![screenshot004](https://github.com/silveine/skins/assets/130988602/aff9bfb2-2358-448b-a0bd-8793bdfde704)
+# [raea](https://selene.s-ul.eu/xcWbmnyX)![screenshot044](https://github.com/user-attachments/assets/5e9aae33-6161-41df-91ec-456f6d1a4110)
+
+
+# [raenm](https://selene.s-ul.eu/IeDm66C7)![screenshot043](https://github.com/user-attachments/assets/56272c93-77e5-49f8-892d-c2ca3292d77d)
+
+# [raevv](https://selene.s-ul.eu/VcsgxUMo)![screenshot045](https://github.com/user-attachments/assets/07b7395b-f5e2-4956-ab29-029781233e47)
+
+# [⊹ eternal](https://selene.s-ul.eu/Y29CqtyD)![screenshot025](https://github.com/evrsense/skins/assets/158487080/d2d0ebe1-63ea-47ff-923d-55902c3cc994)
+
+# [⊹ eternal dt](https://selene.s-ul.eu/Jmi3ry9u)![screenshot029](https://github.com/evrsense/skins/assets/158487080/0c5c4629-4daf-4503-afa3-2a293dc6b6f0)
+
+# [⊹ ilysia](https://selene.s-ul.eu/4esWG5T5)![screenshot026](https://github.com/evrsense/skins/assets/158487080/dced346c-3270-4575-9dc1-af9dd87c90cc)
+
+
+# [ lazy tranquil edit](https://selene.s-ul.eu/FFXYfZOs)![screenshot028](https://github.com/evrsense/skins/assets/158487080/405ef599-bcef-4dbe-ad7f-63ae1a4d0168)
 
 
 
-# [inoa](https://www.mediafire.com/file/4ngb34tmduq8o00/-_%25E2%258A%25B9_inoa.osk/file)![screenshot005](https://github.com/silveine/skins/assets/130988602/c815b0ec-62b7-4ce7-8eb3-dc44e46d4761)
+# [selene](https://selene.s-ul.eu/WhWzghqF)![screenshot004](https://github.com/silveine/skins/assets/130988602/aff9bfb2-2358-448b-a0bd-8793bdfde704)
 
 
 
-# [aia](https://www.mediafire.com/file/8dggnirxm83dc5v/-_%25E2%258A%25B9_aia.osk/file)![screenshot006](https://github.com/silveine/skins/assets/130988602/b73bc7b4-8117-4878-96d3-0603308fbb1c)
+# [inoa](https://selene.s-ul.eu/jvo3n9t3)![screenshot005](https://github.com/silveine/skins/assets/130988602/c815b0ec-62b7-4ce7-8eb3-dc44e46d4761)
 
-# [vomit](https://www.mediafire.com/file/r2ezfn6a1e6y08v/vomit.osk/file)![screenshot007](https://github.com/silveine/skins/assets/130988602/8d78adb5-10a1-460b-a922-6500dda5f4f9)
+
+
+# [aia](https://selene.s-ul.eu/Sx8HVw8O)![screenshot006](https://github.com/silveine/skins/assets/130988602/b73bc7b4-8117-4878-96d3-0603308fbb1c)
+
+# [vomit](https://selene.s-ul.eu/Zpz41ytL)![screenshot007](https://github.com/silveine/skins/assets/130988602/8d78adb5-10a1-460b-a922-6500dda5f4f9)
